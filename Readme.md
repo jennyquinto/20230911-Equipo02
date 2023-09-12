@@ -1,6 +1,6 @@
 # Jenny Vanessa Quinto Córdoba
 ## Colombia
-:kiss:
+:computer:
 
 Juan Francisco Velasco Cornejo
 Mariela Agustina Verón Trucido
