@@ -1,2 +1,4 @@
 ###Jenny Vanessa Quinto Córdoba
-Mariela Agustina Verón Trucido
+# Mariela Agustina Verón Trucido
+## Argentina
+Uruguay :wave:
